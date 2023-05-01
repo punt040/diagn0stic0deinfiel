@@ -1,0 +1,1 @@
+# diagn0stic0deinfiel
